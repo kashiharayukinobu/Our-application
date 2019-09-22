@@ -1,1 +1,1 @@
-## ogawasannhaaizawasanokotogadaisukidesu
+## 〇〇ショッピングモール　△△店
